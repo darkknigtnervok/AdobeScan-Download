@@ -1,5 +1,5 @@
 
-# Free Download Latest Version Adobe Scan
+# Free Download Latest Version Adobe Scan 2025
 
 > [!TIP]
 > *How to download:*
